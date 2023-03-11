@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [CV](https://drive.google.com/file/d/1Mlb9gizYIZFkxQFRWehVkzYmzvmo0pjR/view?usp=sharing)
 
-- ⚡ Fun fact **Silent guy**
+- ⚡ Fun fact ****
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
