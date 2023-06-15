@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **animesh624d@gmail.com**
 
-- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1Mlb9gizYIZFkxQFRWehVkzYmzvmo0pjR/view?usp=sharing)
+- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1RDXGb-_rkrFATHgQCHxnwinJZCDFOjh_/view?usp=sharing)
 
 - ⚡ Fun fact ****
 
